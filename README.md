@@ -16,7 +16,7 @@
 3.  **未来发展**：在大三确定考研或就业方向，并为之努力奋斗。
 
 ## 📫 如何联系我
-*   **Email**: [你的邮箱@example.com]## Hi there 👋
+*   **Email**: 3890104195@qq.com
 
 <!--
 **lzh5316/lzh5316** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
